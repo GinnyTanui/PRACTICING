@@ -1,2 +1,2 @@
 # PRACTICING
-Well i am currently practicing, duuh
+Well i am currently practicing, daaah!
